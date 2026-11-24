@@ -1,4 +1,4 @@
-Hi ther# Hi, I'm Monisha G 👋
+hi, I'm Monisha G 👋
 
 MSc Computer Science Graduate | Fresher
 
